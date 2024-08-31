@@ -8,4 +8,4 @@
 
 💞️ I’m looking to collaborate on projects related to **Frontend Development**
 
-📫 You can reach me through email: talha.farhan38@yahoo.com or LinkedIn: https://www.linkedin.com/in/talhafarhan/
+📫 You can reach me through email: talha.farhan38@yahoo.com or LinkedIn: https://www.linkedin.com/in/talhafarhan/ or Medium: https://medium.com/@talha.farhan38
